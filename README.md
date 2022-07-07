@@ -15,4 +15,9 @@ Zilla Is One Of The Best Gihub Botters On Github That Are In Progress...!
   
 
 -----  
+# My Discord
 
+[![Discord Presence](https://lanyard.cnrad.dev/api/909623557670187090)](https://discord.com/users/909623557670187090)
+  
+  
+-----  
